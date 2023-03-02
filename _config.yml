@@ -23,7 +23,7 @@ pretty_urls:
 
 # Directory
 source_dir: source
-public_dir: public
+public_dir: muwuyi.github.io
 tag_dir: tags
 archive_dir: archives
 category_dir: categories
@@ -106,7 +106,8 @@ theme: butterfly
 ## Docs: https://hexo.io/docs/one-command-deployment
 deploy:
   type: git
-  repo: https://github.com/muwuyi/muwuyi.github.io #仓库地址
+  # repo: https://github.com/muwuyi/muwuyi.github.io #仓库地址
+  repo: git@github.com:muwuyi/muwuyi.github.io.git
   branch: main # 默认使用 master 分支(Github现在改名为main分支)
   message: Update Hexo Static Content # 你可以自定义此次部署更新的说明说明
 
