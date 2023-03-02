@@ -7,10 +7,13 @@ menu:
   Archives: /archives/ || fas fa-archive
   Tags: /tags/ || fas fa-tags
   Categories: /categories/ || fas fa-folder-open
-  Photons: /photos/ 
+  Photons||fas fa-list:
+    Photons: /photons/
+    Girls: /girls/
   List||fas fa-list:
     Music: /music/ || fas fa-music
     Movie: /movies/ || fas fa-video
+  Youyu: /youyu/
   Link: /link/ || fas fa-link
   About: /about/ || fas fa-heart
 
