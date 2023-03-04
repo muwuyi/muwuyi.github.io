@@ -7,8 +7,8 @@ menu:
   Archives: /archives/ || fas fa-archive
   Tags: /tags/ || fas fa-tags
   Categories: /categories/ || fas fa-folder-open
-  Photons||fas fa-list:
-    Photons: /photons/
+  Photos||fa-regular fa-photo-film:
+    素人: /photos/
     Girls: /girls/
   List||fas fa-list:
     Music: /music/ || fas fa-music
@@ -203,7 +203,7 @@ anchor:
 # toc (目錄)
 toc:
   post: true
-  page: false
+  page: true
   number: true
   expand: false
   style_simple: false # for post
