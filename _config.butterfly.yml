@@ -9,8 +9,8 @@ menu:
   Categories: /categories/ || fas fa-folder-open
   Issues: /issues/ || fas fa-microscope
   Photos||fas fa-photo-film:
-    素人: /photos/素人/ || fal fa-person-dress
-    Girls: /photos/girls/ || far fa-face-grin-hearts
+    Girls: /photos/girls/ || fas fa-person-dress
+    写真: /photos/写真/ || far fa-face-grin-hearts
   List||fas fa-list:
     Music: /music/ || fas fa-music
     Movie: /movies/ || fas fa-video

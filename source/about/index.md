@@ -30,6 +30,8 @@ tags:
 5.博客内部文章跳转
 
 ```
-{% post_link hello-world xx %}
+{% post_link post_nane xx %}
+# post_name 为文件名中不报含日期数据的部分
+# {% post_link 第203期  点击链接%}
 ```
 
