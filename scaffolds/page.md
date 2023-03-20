@@ -1,6 +1,6 @@
 ---
 title: {{ title }}
 date: {{ date }}
-password: 
-message: 
+# password: youyu
+# message: 请输入密码
 ---
