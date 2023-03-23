@@ -1,8 +1,8 @@
 ---
 title: 季钥
 date: 2023-03-01 13:34:48
-password: youyu
-message: 请输入密码：
+# password: youyu
+# message: 请输入密码：
 ---
 
 {% gallery true,220,20 %}
