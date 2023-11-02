@@ -341,6 +341,7 @@ i)TS小乐乐合集[14v+9.43G]
 bbs5.yj4o.xyz/2048/read.php?tid=4351623&page=1#post_tpc
 http://bbs5.yj4o.xyz/2048/read.php?tid-4892794-keyword-%E4%B9%90%E4%B9%90.html
 	
+
 #### 	98 5月国产原版TS合集麻豆、果冻、精东等【151V 94.7GB】
 
 链接：https://pan.baidu.com/s/11UJ9JwcwIeWkOjnj003Y8g 提取码：lhes 上村花论坛看小姐姐  
@@ -498,7 +499,7 @@ https://bps.taoxifan.com/2048/read.php?tid-4385128-keyword-%E7%A0%94%E5%A6%B9.ht
 
 https://bps.taoxifan.com/2048/read.php?tid-6326768-fpage-2.html
 
-#### 	129  91极品超清纯萝莉反差邻家小妹妹129
+#### 	129  91极品超清纯萝莉反差邻家小妹妹
 
 链接：https://pan.baidu.com/s/1ZSKSavXgj5-dtb9uBtZVGw 
 提取码：k037
@@ -953,7 +954,7 @@ https://pan.baidu.com/s/1j959cjxClYnHsUq4bI5vyQ 提取码：lcs4
 
 链接：https://pan.baidu.com/s/1m77d1G8GWZISTYAh7X3PGQ 提取码：ownp 解压码：来福利江湖找福利
 
-#### 	194 -(待收集)
+#### 	194 -(待收集)妖娆欲姐
 
 |   收集状态    |  下载  | 图文博客 | 图库 |   资源网盘    | 备份网盘 | 存档 |
 | :-----------: | :----: | :------: | :--: | :-----------: | :------: | :--: |
@@ -1090,7 +1091,7 @@ https://bbs2023.huidating.com/2048/read.php?tid=8506374&page=1#post_tpc
 
 #### [213 玲奈妊婦母乳（3V177P7G）]()
 
-- [ ] 链接：https://pan.baidu.com/s/1oHJMckBhsDQclTwp5yE8lQ 提取码：y2b5 解压密码：2048论坛
+- [x] 链接：https://pan.baidu.com/s/1oHJMckBhsDQclTwp5yE8lQ 提取码：y2b5 解压密码：2048论坛
 
   
 
@@ -1383,11 +1384,9 @@ a009e894a0a4ff16b50516c32c55f078#2147599090#桃暖01.7z.7z
 
 #### 237 糖老湿 各种巨屌 扩阴器 长腿丝袜巨无霸自慰
 
-|    收集状态     |  下载  | 图文博客 | 图库 |   资源网盘    | 备份网盘 | 存档 |
-| :-------------: | :----: | :------: | :--: | :-----------: | :------: | :--: |
-| 在收集/20230327 | 未下载 |  未编写  |  无  | 度盘/从与研一 |  未上传  |  否  |
-
-(收集)[https://bbs2023.huidating.com/2048/read.php?tid-9521155-keyword-%E7%B3%96%E8%80%81%E6%B9%BF.html](https://bbs2023.huidating.com/2048/read.php?tid-9521155-keyword-糖老湿.html)
+|    收集状态     |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| 在收集/20231026 | 未下载 |  未编写  |  无  |   115    |  未上传  |  否  |
 
 ![img](https://img.blr844.com/images/2023/03/15/183832g47r7ji4yuyul4jl.jpg)
 
@@ -2333,5 +2332,177 @@ https://bbs.1vlqg.com/2048/read.php?tid-9989409-fpage-3.html
 
 https://bbs.1vlqg.com/2048/read.php?tid-9978457-fpage-3.html
 
->>>>>>> >>>>>> >>>>>> 23ad8421407e956f83c2ade49a0d2dec21a86a65
->>>>>>>>>>>>>>>>>>> $Date: 13:47 22/10/19 $
+#### 323 难分伯仲⭐夏雨荷VS无名⭐近期中日两个极品清纯妹子大比拼，奶型身材完美
+
+| 收集状态  | 下载 | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :--: | :------: | :--: | :------: | :------: | :--: |
+| /20231024 | 下载 |  未编写  |  无  |    \     |  未上传  |  否  |
+
+<img src="https://66img.cc/images/2023/10/24/a12bb9e29d3103e1669.gif" alt="img"  /><img src="index.assets/b11aff10791d25dbd81.gif" alt="img" style="zoom: 50%;" />
+
+https://td.pxombp4c.com/2048/read.php?tid-11097438.html
+
+#### 324 国产AV主题秀——人美B嫩秀色可餐」极品嫩B小姐姐主题合集②
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231024 | 未下载 |  未编写  |  无  |   115    |  未上传  |  否  |
+
+![img](https://img.blr844.com/images/2023/10/24/110055q6tfcltcgeet1rnm.gif)
+
+![img](https://img.blr844.com/images/2023/10/24/110132qgvz9hzqhc9khyqy.gif)
+
+https://td.pxombp4c.com/2048/read.php?tid-11100412.html
+
+#### 325 足控向00后可爱新人道具嫩穴洞洞极度反差必射
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231024 | 未下载 |  未编写  |  无  |   115    |  未上传  |  否  |
+
+| <img src="https://cdn.elsbpic.com/attachfile/Fid_287/287_1288524_7f4685eb012467f.gif" alt="img" style="zoom:67%;" />  <img src="https://cdn.elsbpic.com/attachfile/Fid_287/287_1288524_9a5899dc19e4ae6.gif" alt="img" style="zoom:67%;" />  <img src="https://cdn.elsbpic.com/attachfile/Fid_287/287_1288524_13b60e188249c7c.gif" alt="img" style="zoom:67%;" />  <img src="https://cdn.elsbpic.com/attachfile/Fid_287/287_1288524_ffb9c06d4d9eef0.gif" alt="img" style="zoom:67%;" /> |
+| ------------------------------------------------------------ |
+| https://td.pxombp4c.com/2048/read.php?tid-11084041-fpage-2.html |
+
+#### 326 大学G奶校花 纯欲天花板【大一学生】逆天颜值 抠逼道具自慰 17.4G48V
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231024 | 未下载 |  未编写  |  无  |   115    |  未上传  |  否  |
+
+<img src="index.assets/205102k5771uc51wedj15j.gif" alt="img" style="zoom:80%;" /><img src="https://data.sfpic2023c.xyz/data/attachment/forum/202308/03/091212agnzv114kn2zr1gv.gif" alt="img" style="zoom:80%;" /><img src="https://data.sfpic2023c.xyz/data/attachment/forum/202307/30/205741uqugh2ixxretyk2c.gif" alt="img" style="zoom:80%;" />
+
+https://td.pxombp4c.com/2048/read.php?tid-11069020-fpage-6.html
+
+### 327  大洋马合集
+
+#### 327-1 俄罗斯Goldie Baby & Ms.White-Kitten & Nikia MegaPark合集[43v43p]
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231026 | 未下载 |  未编写  |  无  | 纵与因其 |  未上传  |  否  |
+
+<img src="index.assets/9a578a14250fee82ff65e0de9ef2af83.jpg" alt="img" style="zoom:33%;" /><img src="index.assets/d962e53e93e7e7d93c6b8d43a1dd7404.jpg" alt="img" style="zoom: 33%;" /><img src="index.assets/583cd9eb9a5f1018820587859a0b36be.jpg" alt="img" style="zoom: 33%;" /><img src="index.assets/1db16f94389db98486f58c052c1d8d02.jpg" alt="img" style="zoom: 33%;" />
+
+https://td.pxombp4c.com/2048/read.php?tid-10161210-keyword-Nikia.html
+
+
+
+#### 328 【少妇可同成可空降】尤物御姐 丝袜足交 无套内射颜射【18.5G/39V】
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231024 | 未下载 |  未编写  |  无  |   115    |  未上传  |  否  |
+
+<img src="index.assets/64c4d666a223a.png" alt="img" style="zoom:50%;" /><img src="index.assets/64c4d65d809d4.png" alt="img" style="zoom:50%;" />
+
+https://td.pxombp4c.com/2048/read.php?tid-11059785-fpage-9.html
+
+#### 329 [韩国]高颜值巨乳巨臀 重型坦克 bobabuttgirl 顶级肉感 [3.98G+122V]
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231026 | 未下载 |  未编写  |  无  | 纵与因其 |  未上传  |  否  |
+
+<img src="index.assets/b147fcafc9c15f55ce3370e2e0bf1f9c.jpg" alt="img" style="zoom: 33%;" /><img src="index.assets/1323ce2a0543fee1ab5105dfa19ab8d2.jpg" alt="img" style="zoom: 33%;" /><img src="index.assets/80f79c3b4932cf845ad5b64d64e9ef7f.jpg" alt="img" style="zoom: 33%;" /><img src="index.assets/4775f8d9863b37b73f830c4a6483442f.jpg" alt="img" style="zoom:33%;" />
+
+https://td.pxombp4c.com/2048/read.php?tid-10333270-keyword-bobabuttgirl.html	解压码：123
+
+#### 330 一只可爱简 [154Vnp+11.7G]
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231026 | 未下载 |  未编写  |  无  | 纵与因其 |  未上传  |  否  |
+
+
+
+<img src="index.assets/image-20231026220219443.png" alt="img" style="zoom:50%;" /><img src="index.assets/407417da550e948d130007d25fbb48d9.jpg" alt="img" style="zoom:33%;" />
+
+https://td.pxombp4c.com/2048/read.php?tid-10106946-keyword-%E4%B8%80%E5%8F%AA%E5%8F%AF%E7%88%B1%E7%AE%80.html	解压密码: 上老王论坛当老王 
+
+#### 331 麻花酱 合集54套 中型坦克 [NPNV+25G]
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231026 | 未下载 |  未编写  |  无  | 纵与因其 |  未上传  |  否  |
+
+<img src="index.assets/image-20231026220756899.png" alt="image-20231026220756899" style="zoom:50%;" /><img src="index.assets/image-20231026220810669.png" alt="image-20231026220810669" style="zoom:50%;" />
+
+https://td.pxombp4c.com/2048/read.php?tid=10520805&page=1#post_tpc
+
+#### 332 颜射母狗蕾【25V15G】
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231026 | 未下载 |  未编写  |  无  |   115    |  未上传  |  否  |
+
+![img](index.assets/287_3579692_ed70f8defaa7d2a.gif)![img](index.assets/287_3579692_9f984311a12eefb.gif)![img](index.assets/287_3579692_001fefbb9db7bdf.gif)
+
+https://td.pxombp4c.com/2048/read.php?tid-11056100-fpage-9.html
+
+#### 333 momoyih 巨大阳具 国妹 嫩萝莉 小合集[NVNP10+G]
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231026 | 未下载 |  未编写  |  无  | 纵与因其 |  未上传  |  否  |
+
+<img src="index.assets/13fe4ad8e2b8e7ff6.png" alt="img" style="zoom:50%;" /><img src="index.assets/118c9c128aa14641e.png" alt="img" style="zoom:50%;" />
+
+https://td.pxombp4c.com/2048/read.php?tid=10944057&page=1#post_tpc
+
+https://td.pxombp4c.com/2048/read.php?tid=10772915&page=1#post_tpc	解压密码: 上老王论坛当老王 
+
+#### 334 【一少举牌系列】露脸反差婊 圣水浇头去重整合版【1507P+59V15.3G/2配额】
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231028 | 未下载 |  未编写  |  无  |   115    |  未上传  |  否  |
+
+<img src="index.assets/287_1184168_45caa8010ef6b64.png" alt="img" style="zoom:50%;" /><img src="index.assets/287_1184168_021e88069aa201b.png" alt="img" style="zoom:50%;" />
+
+https://td.pxombp4c.com/2048/read.php?tid-11117036.html
+
+#### 335 孕妇也疯狂 大肉棒直捣黄龙 P站cupacakeus最新大合集【11G82V1配额】
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231028 | 未下载 |  未编写  |  无  |   115    |  未上传  |  否  |
+
+<img src="index.assets/sshot-8838.png" alt="img" style="zoom:50%;" />
+
+https://td.pxombp4c.com/2048/read.php?tid-11116469.html
+
+#### 336 日本AV 27ID系列原档合集【38V620GB38配额】
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231026 | 未下载 |  未编写  |  无  |   115    |  未上传  |  否  |
+
+<img src="index.assets/287_1184168_943cdb13dcdb02a.jpg" alt="img" style="zoom:50%;" /><img src="index.assets/image-20231028224527197.png" alt="image-20231028224527197" style="zoom:50%;" />
+
+https://td.pxombp4c.com/2048/read.php?tid-11112960.html
+
+#### 337  待收集 樱花瑶瑶
+
+<img src="index.assets/220218xr2dr2d5z4xr4yy1.jpg" alt="img" style="zoom: 50%;" />
+
+#### 338 双马尾18萌妹 全裸诱惑揉捏9V 5.68G
+
+| 收集状态  |  下载  | 图文博客 | 图库 | 资源网盘 | 备份网盘 | 存档 |
+| :-------: | :----: | :------: | :--: | :------: | :------: | :--: |
+| /20231026 | 未下载 |  未编写  |  无  | 纵与因其 |  未上传  |  否  |
+
+<img src="index.assets/6539d75e61533.png" alt="img" style="zoom:50%;" /><img src="index.assets/6539d78e9d4de.png" alt="img" style="zoom:50%;" /><img src="index.assets/image-20231028230306063.png" alt="image-20231028230306063" style="zoom:50%;" />
+
+https://td.pxombp4c.com/2048/read.php?tid-11112946.html
+
+
+
+> > >>
+> > >>
+> > >>
+> > >>
+> > >>
+> > >>
+> > >>37>>> >>>>>> >>>>>> 23ad8421407e956f83c2ade49a0d2dec21a86a65
+> > >>>>>>>>>>>>>>>>>>> $Date: 13:47 22/10/19 $
