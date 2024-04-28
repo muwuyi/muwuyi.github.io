@@ -1,0 +1,1 @@
+(window.webpackJsonp=window.webpackJsonp||[]).push([[71],{1414:function(n,c,o){"use strict";o.d(c,"a",(function(){return e}));var s=o(416),t=o(407);const e=n=>{const{scopes:c,children:o}=n;return o((n=>Object(t.b)((c=>n.map((n=>n(c)))),s.a))(c))}}}]);

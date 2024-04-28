@@ -1,0 +1,1 @@
+(window.webpackJsonp=window.webpackJsonp||[]).push([[30],{1303:function(n,o,e){"use strict";var t=e(2221),a=e.n(t);o.a=(n,o)=>{const e=Object.assign({path:"/ws",transports:["websocket","polling"],randomizationFactor:1,reconnectionDelay:2e3,reconnectionDelayMax:4e4},o);return a()(n,e)}}}]);

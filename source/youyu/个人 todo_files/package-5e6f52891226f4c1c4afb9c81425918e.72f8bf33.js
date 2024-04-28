@@ -1,0 +1,1 @@
+(window.webpackJsonp=window.webpackJsonp||[]).push([[117],{1714:function(n,a,t){"use strict";t.d(a,"a",(function(){return s}));var c=t(0),e=t.n(c),o=t(1422);const s=n=>a=>{const[t,c]=Object(o.a)();return e.a.createElement(n,Object.assign({},a,{canvaModals:t,showCanvaModal:c}))}}}]);
